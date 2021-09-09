@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **EstebanG4A@gmail.com**
 
-- 📄 Know about my experiences [I am computer savvy I can provide protection service for any software](I am computer savvy I can provide protection service for any software)
+- 📄 Know about my experiences I am computer savvy I can provide protection service for any software I am computer savvy I can provide protection service for any software)
 
 - ⚡ Fun fact **I think i'm pretty funny**
 
